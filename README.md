@@ -9,5 +9,5 @@ Week 4: Prescriptive Analytics
 Week 5: Application/Case Studies    
 
 
-*Official Certifcate Link:*     
-*Received Grades:* **--.-%** 
+*Official Certifcate Link:*  https://www.coursera.org/account/accomplishments/verify/UTF6P667TJJQ    
+*Received Grades:* **90.0%** 
